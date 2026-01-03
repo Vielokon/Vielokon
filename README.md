@@ -1,4 +1,5 @@
-## Hi there 👋
+## Hi there)
+Me on X (ex. Twitter until July 24, 2023) since May 10, 2019: https://x.com/HK4Gun9IPZf84Yf
 
 <!--
 **Vielokon/Vielokon** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
