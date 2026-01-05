@@ -1,6 +1,7 @@
 ## Hi there)
 Me on X (ex. Twitter) since May 2019: https://x.com/HK4Gun9IPZf84Yf
-LinkedIn since October 2025: https://www.linkedin.com/in/finteh/
+
+Me on LinkedIn since October 2025: https://www.linkedin.com/in/finteh/
 
 <!--
 **Vielokon/Vielokon** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
